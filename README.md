@@ -1,2 +1,2 @@
 # super-duper-fiesta
-Doh
+Dns.Adguard.com 
